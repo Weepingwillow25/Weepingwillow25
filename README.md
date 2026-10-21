@@ -1,4 +1,4 @@
-### Hi, I'm Arie 👋
+### Hi, I'm Marion 👋
 Advocate-in-training and digital rights researcher.
 
 🌍 Founder of [Presence Africa](https://presenceafrica.org), a digital rights and TFGBV-focused platform.
